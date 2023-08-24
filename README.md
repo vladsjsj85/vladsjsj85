@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vladsjsj85
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...rthrthh t re
+- 🌱 I’m currently learning ...rthrthh t reh rt
 - 📫 How to reach me ...556y345 7557rdzfger gre
 50y54u4dytj jfy dyrt s mn,ryyyerwgstr 
 <!---hrttrth
